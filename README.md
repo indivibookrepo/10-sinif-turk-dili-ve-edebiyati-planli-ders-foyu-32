@@ -1,0 +1,1 @@
+# 10-sinif-turk-dili-ve-edebiyati-planli-ders-foyu-32
